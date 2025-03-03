@@ -1,0 +1,2 @@
+# KINTONE
+株式会社ワライフ (KINTONE) APP CUSTOMIZE
